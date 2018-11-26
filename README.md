@@ -1,2 +1,4 @@
 # Manager-README
-A brief guide of how to work with me
+
+1. Go talk to me.
+2. Form your own conclusions.
